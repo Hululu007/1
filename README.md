@@ -16,9 +16,6 @@ https://shz.al/JdHt
 https://shz.al/Y7F6
 ```
 ```
-https://shz.al/A33r
-```
-```
 https://shz.al/tMA3
 ```
 ```
