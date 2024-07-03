@@ -19,7 +19,7 @@ https://shz.al/zdwf
 https://shz.al/JdHt
 ```
 ```
-https://shz.al/Y7F6
+https://shz.al/iWMQ
 ```
 ```
 https://shz.al/tMA3
