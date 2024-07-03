@@ -10,6 +10,12 @@
 
 ## 优质订阅(𝟏小时前更新)
 ```
+https://fs.v2rayse.com/share/20240703/8aojfjmid6.txt
+```
+```
+https://shz.al/zdwf
+```
+```
 https://shz.al/JdHt
 ```
 ```
