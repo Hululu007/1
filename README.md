@@ -10,19 +10,25 @@
 
 ## 优质订阅(𝟏小时前更新)
 ```
+https://shz.al/PDcM
+```
+```
 https://shz.al/zdwf
 ```
 ```
 https://shz.al/JdHt
 ```
 ```
-https://shz.al/tMA3
-```
-```
 https://fs.v2rayse.com/share/20240628/z1kul5mfc4.txt
 ```
 ```
-https://shz.al/GQJz
+https://shz.al/s3GB
+```
+```
+https://shz.al/tMA3
+```
+```
+https://fs.v2rayse.com/share/20240707/84wkyqqq5d.txt
 ```
 ```
 https://fs.v2rayse.com/share/20240625/wtwcht0m6y.txt
