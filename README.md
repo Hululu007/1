@@ -10,16 +10,10 @@
 
 ## 优质订阅(𝟏小时前更新)
 ```
-https://shz.al/yWSY
-```
-```
 https://shz.al/zdwf
 ```
 ```
 https://shz.al/JdHt
-```
-```
-https://shz.al/cn27
 ```
 ```
 https://shz.al/tMA3
