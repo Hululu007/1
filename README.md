@@ -52,4 +52,4 @@ https://fs.v2rayse.com/share/20240707/suef04gqn9.txt
 :trollface:
 </details>
 
-<img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&width=850&lines=👨🏽‍💻:正在创建新的高速节点..............................💌;请稍候查看✔️&left=true&size=27" />
+<img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&width=850&lines=正在创建新的高速节点.................................💌;请稍候查看✔️&left=true&size=27" />
