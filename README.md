@@ -1,3 +1,5 @@
+<img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&width=850&lines=正在发布新订阅...;Hello,I'm Cry1ngMan&center=true&size=27" />
+
 ## 特别注意 ⚠️
 - 网页分享，【无附加】任何盈利广告
 - 其它客户端、APP均为【假冒】
@@ -23,9 +25,6 @@ https://fs.v2rayse.com/share/20240628/z1kul5mfc4.txt
 ```
 ```
 https://shz.al/s3GB
-```
-```
-https://shz.al/tMA3
 ```
 ```
 https://fs.v2rayse.com/share/20240707/84wkyqqq5d.txt
