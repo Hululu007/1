@@ -5,28 +5,31 @@
 
 ## 优质订阅(𝟏小时前更新)
 ```
-https://shz.al/PDcM
-```
-```
-https://shz.al/zdwf
+https://fs.v2rayse.com/share/20240628/z1kul5mfc4.txt
 ```
 ```
 https://shz.al/63Er
 ```
 ```
-https://fs.v2rayse.com/share/20240628/z1kul5mfc4.txt
+https://shz.al/DhGa
 ```
 ```
-https://shz.al/s3GB
+https://shz.al/E5Sw
 ```
 ```
-https://fs.v2rayse.com/share/20240707/84wkyqqq5d.txt
+https://shz.al/m34s
+```
+```
+https://shz.al/tE7i
+```
+```
+https://shz.al/NZGz
 ```
 ```
 https://fs.v2rayse.com/share/20240625/wtwcht0m6y.txt
 ```
 ```
-https://shz.al/42X2
+https://fs.v2rayse.com/share/20240707/suef04gqn9.txt
 ```
 
 ## ★★★★
@@ -48,4 +51,4 @@ https://shz.al/42X2
 <img src="https://komarev.com/ghpvc/?username=Cry1ngMan&label=Views&color=0e75b6&style=flat" alt="访问量统计" />
 </details>
 
-<img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&width=850&lines=正在用查克拉创造新节点..............................💌;请稍候查收✔️&left=true&size=27" />
+<img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&width=850&lines=正在用查克拉创造新节点..............................💌;请稍候查看✔️&left=true&size=27" />
