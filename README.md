@@ -13,7 +13,7 @@ https://shz.al/PDcM
 https://shz.al/zdwf
 ```
 ```
-https://shz.al/JdHt
+https://shz.al/63Er
 ```
 ```
 https://fs.v2rayse.com/share/20240628/z1kul5mfc4.txt
