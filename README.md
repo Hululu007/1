@@ -1,10 +1,5 @@
 <img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&width=850&lines=正在发布新订阅...;Hello,I'm Cry1ngMan&center=true&size=27" />
 
-## 特别注意 ⚠️
-- 网页分享，【无附加】任何盈利广告
-- 其它客户端、APP均为【假冒】
-- 为了您的设备安全，如遇到请立刻【卸载】
-
 ## 食用方法 🍖
 1. 复制下方生成的订阅链接
 2. 将已复制的链接导入代理软件
