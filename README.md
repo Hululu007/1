@@ -31,7 +31,7 @@ https://fs.v2rayse.com/share/20240625/wtwcht0m6y.txt
 https://shz.al/42X2
 ```
 
-<div align="center">
+<div align="left">
     <img src="https://cdn.17lai.site/media/pic/parrots/githubparrot.webp" width="25" height="25"/>
     <img src="https://cdn.17lai.site/media/pic/parrots/iranparrot.webp" width="25" height="25"/>
     <img src="https://cdn.17lai.site/media/pic/parrots/asyncparrot.webp" width="36" height="25"/>
