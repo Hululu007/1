@@ -1,4 +1,4 @@
-<img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&width=850&lines=正在发布新订阅...;请稍候再试！&center=true&size=27" />
+<img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&width=850&lines=正在发布新订阅...;请稍候再试❤️&center=true&size=27" />
 
 ## 食用方法 🍖
 1. 复制下方生成的订阅链接
