@@ -49,7 +49,6 @@ https://fs.v2rayse.com/share/20240707/suef04gqn9.txt
 
 [![GitHub stars](https://img.shields.io/github/stars/Cry1ngMan/1.svg?style=social&label=Stars)](https://github.com/Cry1ngMan/1/stargazers)
 <img src="https://komarev.com/ghpvc/?username=Cry1ngMan&label=Views&color=0e75b6&style=flat" alt="访问量统计" />
-:trollface:
 </details>
 
-<img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&width=850&lines=正在创建新的高速节点.................................💌;请稍候查看✔️&left=true&size=27" />
+<img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&width=850&lines=正在创建新的高速节点.................................💌;请稍候查看🔕&left=true&size=27" />
