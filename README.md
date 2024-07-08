@@ -28,9 +28,6 @@ https://shz.al/NZGz
 ```
 https://fs.v2rayse.com/share/20240625/wtwcht0m6y.txt
 ```
-```
-https://fs.v2rayse.com/share/20240707/suef04gqn9.txt
-```
 
 ## ★★★★
 > 失效的订阅链接会被定期更换🆕新订阅会在其位置生成
