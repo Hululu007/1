@@ -5,10 +5,7 @@
 
 ## 优质订阅(𝟏小时前更新)
 ```
-https://fs.v2rayse.com/share/20240710/lxysq4rf9t.txt
-```
-```
-https://fs.v2rayse.com/share/20240710/kk8jz8d6nj.txt
+https://shz.al/zQp5
 ```
 ```
 https://shz.al/THdT
