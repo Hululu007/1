@@ -8,19 +8,7 @@
 https://shz.al/28Rd
 ```
 ```
-https://shz.al/THdT
-```
-```
-https://shz.al/DhGa
-```
-```
-https://shz.al/NZGz
-```
-```
-https://fs.v2rayse.com/share/20240625/wtwcht0m6y.txt
-```
-```
-https://shz.al/hQQ7
+https://shz.al/zb6j
 ```
 
 ## ★★★★
