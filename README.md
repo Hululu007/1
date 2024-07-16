@@ -14,9 +14,6 @@ https://shz.al/THdT
 https://shz.al/DhGa
 ```
 ```
-https://shz.al/tE7i
-```
-```
 https://shz.al/NZGz
 ```
 ```
