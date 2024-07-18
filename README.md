@@ -5,13 +5,16 @@
 
 ## 优质订阅(𝟏小时前更新)
 ```
-https://shz.al/EDSP
+https://shz.al/yfCQ
 ```
 ```
-https://fs.v2rayse.com/share/20240625/wtwcht0m6y.txt
+https://fs.v2rayse.com/share/20240718/o58y1qc1ex.txt
 ```
 ```
-https://shz.al/MsTJ
+https://shz.al/CRmT
+```
+```
+https://shz.al/3ypM
 ```
 
 ## ★★★★
