@@ -8,9 +8,6 @@
 https://shz.al/yfCQ
 ```
 ```
-https://shz.al/4H3s
-```
-```
 https://shz.al/7GPP
 ```
 ```
