@@ -1,3 +1,5 @@
+<img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&width=850&lines=正在创造更多高速订阅.................................💌;【当前模式：一周二更】，站内订阅全寄当天就更...&left=true&size=27" />
+
 ## 食用方法 🍖
 1. 复制下方生成的订阅链接
 2. 将已复制的链接导入代理软件
@@ -24,7 +26,7 @@ https://shz.al/8hXT
 ```
 
 ## ★★★★
-> 每条订阅链接速度独立🍃请根据自身网络环境自行适配
+> 每条订阅链接速度独立🍃请根据自身网络环境自行选择
 >
 > 永久白嫖高速订阅❤️喜欢就请转发和收藏本站⬇️⬇️⬇️
 >
@@ -39,5 +41,3 @@ https://shz.al/8hXT
 [![GitHub stars](https://img.shields.io/github/stars/Cry1ngMan/1.svg?style=social&label=Stars)](https://github.com/Cry1ngMan/1/stargazers)
 <img src="https://komarev.com/ghpvc/?username=Cry1ngMan&label=Views&color=0e75b6&style=flat" alt="访问量统计" />
 </details>
-
-<img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&width=850&lines=正在创造更多高速订阅.................................💌;解析中...&left=true&size=27" />
