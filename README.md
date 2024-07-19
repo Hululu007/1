@@ -1,4 +1,4 @@
-<img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&width=850&lines=⛧正在臻选更多高速订阅...;【当前模式：一周二更】站内订阅全寄当天就更...&left=true&size=27" />
+<img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&width=850&lines=⛧正在臻选更多高速订阅...;【当前模式：每周双更】站内订阅全寄当天就更...&left=true&size=27" />
 
 ## 食用方法 🍖
 1. 复制下方生成的订阅链接
