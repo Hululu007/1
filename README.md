@@ -5,19 +5,22 @@
 
 ## 优质订阅(𝟏小时前更新)
 ```
-https://shz.al/Pbz4
-```
-```
-https://shz.al/yfCQ
-```
-```
 https://shz.al/N37D
+```
+```
+https://shz.al/3ypM
+```
+```
+https://shz.al/Pbz4
 ```
 ```
 https://shz.al/7GPP
 ```
 ```
-https://shz.al/3ypM
+https://shz.al/yfCQ
+```
+```
+https://shz.al/8hXT
 ```
 
 ## ★★★★
@@ -37,4 +40,4 @@ https://shz.al/3ypM
 <img src="https://komarev.com/ghpvc/?username=Cry1ngMan&label=Views&color=0e75b6&style=flat" alt="访问量统计" />
 </details>
 
-<img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&width=850&lines=正在创建新的高速节点.................................💌;解析中...&left=true&size=27" />
+<img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&width=850&lines=正在创造更多高速订阅.................................💌;解析中...&left=true&size=27" />
