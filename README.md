@@ -7,22 +7,25 @@
 
 ## 优质订阅(𝟏小时前更新)
 ```
-https://shz.al/N37D
+https://fs.v2rayse.com/share/20240719/zwdr7y5lee.txt
 ```
 ```
 https://shz.al/3ypM
 ```
 ```
-https://shz.al/Pbz4
+https://fs.v2rayse.com/share/20240719/o0xfxtg4ey.txt
 ```
 ```
-https://shz.al/7GPP
+https://fs.v2rayse.com/share/20240719/p8dj1n6lov.txt
 ```
 ```
-https://shz.al/yfCQ
+https://fs.v2rayse.com/share/20240719/qe45fsxhlb.txt
 ```
 ```
-https://shz.al/3wjw
+https://shz.al/zPtJ
+```
+```
+https://shz.al/wbs5
 ```
 
 ## ★★★★
