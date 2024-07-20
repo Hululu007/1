@@ -11,7 +11,7 @@ https://fs.v2rayse.com/share/20240719/zwdr7y5lee.txt
 https://shz.al/3ypM
 ```
 ```
-https://shz.al/dpFW
+https://shz.al/tzE8
 ```
 ```
 https://fs.v2rayse.com/share/20240719/o0xfxtg4ey.txt
