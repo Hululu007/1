@@ -5,16 +5,13 @@
 
 ## 深夜限定（早晨 𝟖:𝟑𝟎 失效）
 ```
-https://fs.v2rayse.com/share/20240719/zwdr7y5lee.txt
+https://shz.al/33a5
 ```
 ```
-https://shz.al/RtdG
+https://shz.al/afzs
 ```
 ```
-https://fs.v2rayse.com/share/20240723/s6yhl6xjfa.txt
-```
-```
-https://fs.v2rayse.com/share/20240725/wq29iz72xc.txt
+https://shz.al/f6wX
 ```
 
 ## ❓❓❓❓
