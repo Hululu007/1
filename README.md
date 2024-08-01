@@ -3,15 +3,15 @@
 2. 将已复制的链接导入代理软件
 3. 测速，选择一个【有值】的且延时较低的节点连接即可
 
-## 早餐福利（每天 𝟖:𝟑𝟎 失效）
+## 优质订阅(𝟏小时前更新)
 ```
-https://fs.v2rayse.com/share/20240801/0r9htej8gu.txt
-```
-```
-https://shz.al/33a5
+https://shz.al/dG6b
 ```
 ```
-https://shz.al/afzs
+https://fs.v2rayse.com/share/20240801/6gcvzzexx1.txt
+```
+```
+https://shz.al/k4TS
 ```
 
 ## ❓❓❓❓
