@@ -3,15 +3,12 @@
 2. 将已复制的链接导入代理软件
 3. 测速，选择一个【有值】的且延时较低的节点连接即可
 
-## 优质订阅 ❤️不用怀疑，以下全是你的
-```
-https://shz.al/dG6b
-```
+## 优质订阅 （今日名言：温暖全来自于你一人的日常）
 ```
 https://fs.v2rayse.com/share/20240801/6gcvzzexx1.txt
 ```
 ```
-https://shz.al/k4TS
+https://fs.v2rayse.com/share/20240801/1zfak1nwb3.txt
 ```
 
 ## ❓❓❓❓
