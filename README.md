@@ -10,6 +10,9 @@ https://fs.v2rayse.com/share/20240801/6gcvzzexx1.txt
 ```
 https://fs.v2rayse.com/share/20240801/1zfak1nwb3.txt
 ```
+```
+https://shz.al/hJ5i
+```
 
 ## ❓❓❓❓
 > 失效的订阅链接会被定期更换🆕新订阅会在其位置生成
