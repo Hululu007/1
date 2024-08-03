@@ -5,13 +5,10 @@
 
 ## 优质订阅 （今日名言：温暖全来自于你一人的日常）
 ```
-https://fs.v2rayse.com/share/20240801/6gcvzzexx1.txt
+https://fs.v2rayse.com/share/20240803/dzorz3niv6.txt
 ```
 ```
 https://fs.v2rayse.com/share/20240801/1zfak1nwb3.txt
-```
-```
-https://shz.al/hJ5i
 ```
 
 ## ❓❓❓❓
