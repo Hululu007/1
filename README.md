@@ -3,12 +3,9 @@
 2. 将已复制的链接导入代理软件
 3. 测速，选择一个【有值】的且延时较低的节点连接即可
 
-## 优质订阅 （今日名言：温暖全来自于你一人的日常）
+## 深夜福利 每天早晨 𝟕 点 失效
 ```
-https://fs.v2rayse.com/share/20240803/dzorz3niv6.txt
-```
-```
-https://fs.v2rayse.com/share/20240801/1zfak1nwb3.txt
+https://shz.al/86EC
 ```
 
 ## ❓❓❓❓
