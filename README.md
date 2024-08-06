@@ -8,7 +8,7 @@
 【𝟏点】发放最新高速订阅⬇️不定时变更订阅，届时请到本站重新获取
 ```
 ```
-https://shz.al/86EC
+https://fs.v2rayse.com/share/20240806/78ja3nys84.txt
 ```
 
 ## ❓❓❓❓
