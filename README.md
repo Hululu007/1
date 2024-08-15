@@ -8,10 +8,7 @@
 https://shz.al/xtdn
 ```
 ```
-https://fs.v2rayse.com/share/20240813/rtffjwblek.txt
-```
-```
-https://shz.al/xhQ8
+https://shz.al/RWmt
 ```
 ```
 https://shz.al/bFMT
