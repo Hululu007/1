@@ -5,10 +5,10 @@
 
 ## 优质订阅(𝟏小时前更新)
 ```
-https://shz.al/xtdn
+https://shz.al/f53H
 ```
 ```
-https://shz.al/RWmt
+https://shz.al/TnPm
 ```
 
 ## ★★★★
