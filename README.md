@@ -1,5 +1,5 @@
 ## 通讯限定 🗣
-[**追加发放TG群组【6】名额：用于防失联、实时issues反馈、获取更多高速订阅**](https://t.me/+yw58ioeKb1VhY2I1)
+[**追加发放TG群组【5】名额：用于防失联、实时issues反馈、获取更多高速订阅**](https://t.me/+yw58ioeKb1VhY2I1)
 
 ## 食用方法 🍖
 1. 复制下方生成的订阅链接
@@ -9,9 +9,6 @@
 ## 优质订阅(𝟏小时前更新)
 ```
 https://shz.al/MYcx
-```
-```
-https://shz.al/f53H
 ```
 ```
 https://shz.al/TnPm
