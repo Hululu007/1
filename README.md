@@ -8,7 +8,10 @@
 
 ## 优质订阅(𝟏小时前更新)
 ```
-https://shz.al/MYcx
+https://shz.al/FWBA
+```
+```
+https://shz.al/e8aK
 ```
 ```
 https://shz.al/TnPm
