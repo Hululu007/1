@@ -14,9 +14,6 @@ https://shz.al/QEy4
 https://shz.al/FWBA
 ```
 ```
-https://shz.al/e8aK
-```
-```
 https://shz.al/TnPm
 ```
 
