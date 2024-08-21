@@ -5,9 +5,6 @@
 
 ## 优质订阅(𝟏小时前更新)
 ```
-https://shz.al/z3pY
-```
-```
 https://shz.al/ERb2
 ```
 ```
