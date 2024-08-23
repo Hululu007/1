@@ -8,7 +8,7 @@
 https://shz.al/YjwY
 ```
 ```
-https://fs.v2rayse.com/share/20240822/p0oefn1e4c.txt
+https://shz.al/ZFDF
 ```
 
 ## ★★★★
