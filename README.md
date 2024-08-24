@@ -11,9 +11,6 @@
 https://shz.al/YjwY
 ```
 ```
-https://fs.v2rayse.com/share/20240824/hh7vofs94z.txt
-```
-```
 https://shz.al/jjKw
 ```
 
