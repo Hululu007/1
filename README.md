@@ -8,6 +8,9 @@
 
 ## 优质订阅(𝟏小时前更新)
 ```
+https://shz.al/jfSN
+```
+```
 https://shz.al/ww3A
 ```
 ```
