@@ -11,7 +11,7 @@
 https://fs.v2rayse.com/share/20240826/li2cq9lslc.txt
 ```
 ```
-https://shz.al/aykQ
+https://shz.al/aJrM
 ```
 ```
 https://shz.al/jjKw
