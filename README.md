@@ -13,9 +13,6 @@ https://fs.v2rayse.com/share/20240826/li2cq9lslc.txt
 ```
 https://shz.al/aJrM
 ```
-```
-https://shz.al/jjKw
-```
 
 ## ★★★★
 > 失效的订阅链接会被定期更换🆕新订阅会在其位置生成
