@@ -8,10 +8,10 @@
 
 ## 优质订阅(𝟏小时前更新)
 ```
-https://fs.v2rayse.com/share/20240826/li2cq9lslc.txt
+https://shz.al/XNAY
 ```
 ```
-https://shz.al/aJrM
+https://shz.al/jjKw
 ```
 
 ## ★★★★
