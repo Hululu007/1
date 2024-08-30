@@ -11,7 +11,7 @@
 https://shz.al/XNAY
 ```
 ```
-https://shz.al/jjKw
+https://shz.al/Q8B8
 ```
 
 ## ★★★★
