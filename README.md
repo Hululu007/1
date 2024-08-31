@@ -11,9 +11,6 @@
 https://shz.al/XNAY
 ```
 ```
-https://shz.al/RMck
-```
-```
 https://fs.v2rayse.com/share/20240830/6p2updj0ft.txt
 ```
 
