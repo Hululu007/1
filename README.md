@@ -8,7 +8,7 @@
 
 ## 优质订阅(𝟏小时前更新)
 ```
-https://shz.al/XNAY
+
 ```
 ```
 https://fs.v2rayse.com/share/20240902/3usv3e3j6g.txt
