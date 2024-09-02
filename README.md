@@ -11,7 +11,7 @@
 https://shz.al/XNAY
 ```
 ```
-https://shz.al/QAMT
+https://fs.v2rayse.com/share/20240902/3usv3e3j6g.txt
 ```
 
 ## ★★★★
