@@ -16,6 +16,9 @@ https://shz.al/eBk6
 ```
 https://shz.al/2hMd
 ```
+```
+https://fs.v2rayse.com/share/20240905/0yhin0cb1q.txt
+```
 
 ## ★★★★
 > 失效的订阅链接会被定期更换🆕新订阅会在其位置生成
