@@ -8,9 +8,6 @@
 
 ## 优质订阅(𝟏小时前更新)
 ```
-https://shz.al/XazS
-```
-```
 https://shz.al/k4ti
 ```
 ```
