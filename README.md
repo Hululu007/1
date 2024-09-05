@@ -8,13 +8,10 @@
 
 ## 优质订阅(𝟏小时前更新)
 ```
-https://shz.al/k4ti
+https://shz.al/yR7x
 ```
 ```
 https://shz.al/eBk6
-```
-```
-https://fs.v2rayse.com/share/20240905/0yhin0cb1q.txt
 ```
 
 ## ★★★★
