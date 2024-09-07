@@ -1,5 +1,5 @@
 ## 通讯限定 🗣 
-[**追加发放电报群组【6】名额：用于防失联、实时issues反馈、获取更多高速订阅**](https://t.me/+PvfTQHEbY2ZmNzJl)
+[**追加发放电报群组【7】名额：用于防失联、实时issues反馈、获取更多高速订阅**](https://t.me/+PvfTQHEbY2ZmNzJl)
 
 ## 食用方法 🍖
 1. 复制下方生成的订阅链接
@@ -8,7 +8,7 @@
 
 ## 优质订阅(𝟏小时前更新)
 ```
-https://shz.al/bzdR
+https://shz.al/HFm8
 ```
 ```
 https://shz.al/eY8G
