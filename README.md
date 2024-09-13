@@ -1,5 +1,5 @@
 ## 战术呼救 🆘
-[**防失联TG群组：用于实时issues反馈、获取更多高速订阅**](https://t.me/+2W-43uCMWV4xMmNl)
+[**TG群组：用于防失联、实时issues反馈、获取更多高速订阅**](https://t.me/+2W-43uCMWV4xMmNl)
 
 ## 食用方法 🍖
 1. 复制下方生成的订阅链接
