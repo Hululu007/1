@@ -14,7 +14,7 @@ https://shz.al/sExp
 https://shz.al/TJzM
 ```
 ```
-https://shz.al/yErB
+https://shz.al/ypd6
 ```
 
 ## ★★★★ ❓
