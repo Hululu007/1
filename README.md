@@ -8,10 +8,7 @@
 
 ## 黄金体验 💸
 ```
-https://shz.al/TJzM
-```
-```
-https://shz.al/sExp
+https://shz.al/dSik
 ```
 
 ## ★★★★ ❓
