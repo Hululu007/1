@@ -1,6 +1,5 @@
 ## 最后王牌 🃏
-[**追加发放TG群组【6】名额：用于防失联、实时issues反馈、获取更多高速订阅**](https://t.me/+2W-43uCMWV4xMmNl)
-https://github.com/user-attachments/assets/78ca3356-60d9-4b89-ad4d-4bdb5743b5b2
+[**发放TG群组【6】名额：用于防失联、实时issues反馈、获取更多高速订阅**](https://t.me/+2W-43uCMWV4xMmNl)
 
 ## 食用方法 🍖
 1. 复制下方生成的订阅链接
