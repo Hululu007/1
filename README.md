@@ -8,10 +8,7 @@
 
 ## 黄金体验 💸
 ```
-https://shz.al/sExp
-```
-```
-https://shz.al/TJzM
+https://shz.al/fHky
 ```
 
 ## [真香警告](https://github.com/user-attachments/assets/123a42e9-76ea-481b-8244-6cac18c03ccd) ⬅️
