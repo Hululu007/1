@@ -1,5 +1,7 @@
 ## 最后王牌 🃏
 TG群组现已正式开放：用于防失联、实时issues反馈、获取更多高速中转订阅
+
+&nbsp;
 [**点我直达**](https://t.me/+2W-43uCMWV4xMmNl)
 
 ## 食用方法 🍖
@@ -9,7 +11,7 @@ TG群组现已正式开放：用于防失联、实时issues反馈、获取更多
 
 ## 黄金体验 💸
 ```
-https://shz.al/fHky
+https://shz.al/3cBy
 ```
 ```
 https://shz.al/MejK
