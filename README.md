@@ -1,8 +1,5 @@
 ![image](https://github.com/user-attachments/assets/258d7035-cb94-412e-b965-381c74c43b32)
 
-## 最后王牌 🃏
-限量发放【[**TG公益群组**](https://t.me/+2W-43uCMWV4xMmNl)
-】名额：用于防失联、实时issues反馈、获取更多高速订阅
 ## 食用方法 🍖
 1. 复制下方生成的订阅链接
 2. 将已复制的链接导入代理软件
@@ -15,6 +12,10 @@ https://shz.al/3cBy
 ```
 https://shz.al/MejK
 ```
+
+## 最后王牌 🃏
+限量发放【[**TG公益群组**](https://t.me/+2W-43uCMWV4xMmNl)
+】名额：用于防失联、实时issues反馈、获取更多高速订阅
 
 ## [真香警告](https://github.com/user-attachments/assets/123a42e9-76ea-481b-8244-6cac18c03ccd) ⬅️
 > 部分地区被墙🚫可用其它慢速梯子兑换本站的高速订阅
