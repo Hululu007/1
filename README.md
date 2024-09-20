@@ -1,5 +1,5 @@
 ## 最后王牌 🃏
-[**发放TG群组【6】名额：用于防失联、实时issues反馈、获取更多高速订阅**](https://t.me/+2W-43uCMWV4xMmNl)
+[**TG群组现已开放：用于防失联、实时issues反馈、获取更多高速中转订阅**](https://t.me/+2W-43uCMWV4xMmNl)
 
 ## 食用方法 🍖
 1. 复制下方生成的订阅链接
@@ -9,6 +9,9 @@
 ## 黄金体验 💸
 ```
 https://shz.al/fHky
+```
+```
+https://shz.al/MejK
 ```
 
 ## [真香警告](https://github.com/user-attachments/assets/123a42e9-76ea-481b-8244-6cac18c03ccd) ⬅️
