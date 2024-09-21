@@ -7,7 +7,7 @@
 
 ## 黄金体验 💸
 ```
-https://shz.al/3cBy
+https://shz.al/aAkK
 ```
 ```
 https://shz.al/MejK
