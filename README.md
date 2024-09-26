@@ -12,6 +12,9 @@ https://shz.al/MS67
 ```
 https://shz.al/Scw4
 ```
+```
+2个里总有1个能起飞的，喜欢就要白嫖！
+```
 
 ## 最后王牌 🃏
 限量发放【[**TG公益群组**](https://t.me/+z1HWB3Ns5vowYTM9)
