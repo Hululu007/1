@@ -7,10 +7,10 @@
 
 ## 黄金体验 💸
 ```
-https://shz.al/Rzn6
+https://shz.al/bPid
 ```
 ```
-https://shz.al/khxd
+https://shz.al/5Xfz
 ```
 
 ## 最后王牌 🃏
