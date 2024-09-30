@@ -10,7 +10,7 @@
 https://shz.al/iJez
 ```
 ```
-https://shz.al/N7D4
+
 ```
 
 ## 最后王牌 🃏
