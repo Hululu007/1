@@ -17,8 +17,8 @@ https://shz.al/8kd7
 ```
 
 ## 最后王牌 🃏
-**限量发放【[TG公益群组](https://t.me/+z1HWB3Ns5vowYTM9)
-】战略席位：用于防失联、实时issues反馈、获取更多高速订阅**
+限量发放【[**TG公益群组名额**](https://t.me/+z1HWB3Ns5vowYTM9)
+】：用于防失联、实时issues反馈、获取更多高速订阅
 
 ## [真香警告](https://github.com/user-attachments/assets/123a42e9-76ea-481b-8244-6cac18c03ccd) ⬅️
 > 部分地区被墙🚫可用其它慢速梯子兑换本站的高速订阅
