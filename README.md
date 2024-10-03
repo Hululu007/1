@@ -14,8 +14,9 @@ https://shz.al/2pXH
 ```
 
 ## 最后王牌 🃏
-限量发放【[**TG公益群组**](https://t.me/+z1HWB3Ns5vowYTM9)
+额外发放【[**TG公益群组**](https://t.me/+z1HWB3Ns5vowYTM9)
 】邀请函：用于防失联、实时issues反馈、获取更多高速订阅
+注：只是备用潜水勿申请⚠️建议穹途末路再进群，否则AI会根据大模型算法将其封禁
 
 ## [真香警告](https://github.com/user-attachments/assets/123a42e9-76ea-481b-8244-6cac18c03ccd) ⬅️
 > 部分地区被墙🚫可用其它慢速梯子兑换本站的高速订阅
