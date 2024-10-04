@@ -1,4 +1,4 @@
-![IMG](https://github.com/user-attachments/assets/19793e9c-3d58-4818-8e02-52d459821387)
+![IMG](https://github.com/user-attachments/assets/726fd0c3-63b2-4908-b38b-ca6b1af8e87c)
 
 ## 食用方法 🍖
 1. 复制下方生成的订阅链接
