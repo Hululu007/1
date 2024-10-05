@@ -9,7 +9,7 @@
 https://shz.al/67Z7
 ```
 ```
-https://shz.al/fmC7
+https://shz.al/EEYw
 ```
 
 ## 最后王牌 🃏
