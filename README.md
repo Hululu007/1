@@ -13,6 +13,8 @@ https://shz.al/mJGb
 限量发放【[公益群组](https://t.me/+0Y0zN9i-ak8yZWM1)】申请资格：用于防失联、实时issues反馈、获取更多高速订阅
 
 ## [真香警告](https://github.com/user-attachments/assets/123a42e9-76ea-481b-8244-6cac18c03ccd) ⬅️
+> 失效的订阅链接会被定期更换🆕新订阅会在其位置生成
+> 
 > 部分地区被墙🚫可用其它慢速梯子兑换本站的高速订阅
 >
 > 永久白嫖高速订阅，如果喜欢请转发❤️收藏本站不迷路
