@@ -8,9 +8,6 @@
 ```
 https://shz.al/A3wh
 ```
-```
-https://shz.al/sHTc
-```
 
 ## 最后王牌 🃏
 限量发放【[公益群组](https://t.me/+0Y0zN9i-ak8yZWM1)】申请资格：用于防失联、实时issues反馈、获取更多高速订阅
