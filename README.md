@@ -6,7 +6,7 @@
 
 ## 黄金体验 💸
 ```
-https://shz.al/SasC
+https://shz.al/MFA4
 ```
 ```
 https://shz.al/a2ff
