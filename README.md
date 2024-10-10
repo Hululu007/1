@@ -6,7 +6,7 @@
 
 ## 黄金体验 💸
 ```
-https://shz.al/A3wh
+https://shz.al/SasC
 ```
 
 ## 最后王牌 🃏
