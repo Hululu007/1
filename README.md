@@ -13,7 +13,7 @@ https://shz.al/a2ff
 ```
 
 ## 点我直达 ⬇️
-[限量发放【公益群组】申请资格：用于防失联、实时issues反馈、获取更多高速订阅](https://t.me/+0Y0zN9i-ak8yZWM1)
+[限量发放【公益群组】申请资格：](https://t.me/+0Y0zN9i-ak8yZWM1)用于防失联、实时issues反馈、获取更多高速订阅
 ![最强不解释](https://github.com/user-attachments/assets/b7bc35cb-44f2-4e9f-94bc-216b6584707a)
 
 ## [真香警告](https://github.com/user-attachments/assets/123a42e9-76ea-481b-8244-6cac18c03ccd) ⬅️
